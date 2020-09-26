@@ -1,0 +1,10 @@
+[6:15](https://youtu.be/LPE05Lzdyjc?t=375) Ajahn Nyanadhammo tells a great story about his early years with Ajahn Chah. One day he was coming back from the alms-round and another one of the Western monks came up to him, and started gossiping about some of the other monks here at the monastery.  Ajahn Nyanadhammo didn't want to hear this, so he moved away: but it put him in a foul mood.  
+As he was coming back to the monastery, though, he ran into Ajahn Chah, who saw him and said “Good morning”, in English. Apparently, living with Ajahn Chah, there were hundreds of monks, it was very rare that you got addressed by Ajahn Chah like that. So it lifted his spirits. He decided, that night, he wanted to massage the Ajahn Chah’s feet.  
+So he sat there massaging and Ajahn Chah’s feet. For a while nothing was said. He was thinking to himself what an ideal opportunity this was: there was the sound of the chanting in the background, here he was massaging the feet of an Arahant… about as close to heaven as it gets here in the human realm.  
+All of a sudden Ajahn Chah took the other foot and kicked him in the chest, stomped on him in the chest. He said, "Look, don't let your state of mind depend on the words of other people. In other words, don't let the other person's words get you down, or even the Ajahn’s 'good morning', don't let that get your spirits up. If the words of other people have that big an influence on your mind you're setting yourself up for a fall." So Ajahn Nyanadhammo says he's really proud of the fact that he has Ajahn Chah’s footprint stamped on his chest. It’s a sign of the Ajahn's compassion: ad that's the right attitude to have. The criticism is amazed meant to improve, it's not meant to tear down. And as long as you understand that principle you can benefit from it.
+
+ &nbsp;
+
+ &nbsp;
+
+[Here is this event recounted by Ajahn Nyanadhammo himself](http://www.fsnewsletter.amaravati.org/html/48/48.htm).

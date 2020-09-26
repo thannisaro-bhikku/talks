@@ -1,0 +1,47 @@
+Here are some quotes that I found important, including a more complete version of the title of this post:
+
+And as you look for happiness in these ways you get a sense of self-esteem; you realize that you're being responsible in your search for happiness, and you see that being good in these ways makes other people happy too.
+
+Remember that the desire for long-term happiness provides the framework for understanding how to use the teachings on inconstancy, because a lot of people get it the other way around.
+
+And as you look for happiness in these ways you get a sense of self-esteem; you realize that you're being responsible in your search for happiness, and you see that being good in these ways makes other people happy too. And that sense of connection -- your happiness and their happiness are not in conflict -- it warms the heart. It overcomes our sense of being totally alone in this world.
+
+So, this is why when the Buddha identified the beginning of wisdom, it wasn't with the question ‘is form constant or inconstant?’ That comes later. It begins with, ‘what will lead to my long-term welfare and happiness?’
+
+And it's in the context of putting the search for true happiness or last lasting happiness first that the whole practice of merit makes sense. It's not simply that you happen to be strange and like to be generous and virtuous, whereas other people like to find their happiness in other ways.
+It's because you realize that the kind of happiness that comes from merit is better, say than the happiness that comes from simply trying to grab hold of pleasures in terms of sight, sound, smells, tastes, tactile sensations: it's wiser, less harmful. And more conducive to further progress on the path.
+
+The Buddha was never the sort of teacher who would say that the search for happiness is bad, or that you shouldn't try to look for your own happiness. Quite the contrary, it's a search for happiness: but do it wisely. Think about the implications of what a wise search for happiness would be, and when you do that that's when you begin to be wise.
+
+ 
+
+Wisdom begins with a desire to find long-term happiness. It's important to keep that point in mind, especially when we listen to the teachings on inconstancy or impermanence [anicca](https://suttacentral.net/sn22.137/en/sujato).
+Remember that the desire for long-term happiness provides the framework for understanding how to use the teachings on inconstancy, because a lot of people get it the other way around. They say that wisdom starts with seeing how everything is inconstant, and then from that point you look at your desire for happiness and you realize you gotta tame it -- just simply accept that things are inconstant; long-term happiness is impossible.
+
+So you grab what you can. Of course, as a good Buddhist, you're polite: you don't grab too much. You hold things and you let them go. Whatever pleasures you can find you realize they're passing, and you milk them for the pleasure you can find from them and then let them go, and find another one. As if you were dancing and kept changing partners.
+
+But if you think in those terms there's no reason to put any effort into finding particular forms of happiness, and objectively speaking no way of finding happiness would be better than any other: you simply accept the pleasures as they come, wherever they come from, with the bittersweet realization you have to let them go. But that's okay because new pleasures will come up in their place.
+
+Which is all very wrong-headed. I guess it's got the framework and the teaching that fits into the framework backwards. This is similar to that issue of ‘which teaching is the framework: the Four Noble Truths or the three characteristics / the three perceptions’. And the two issues are actually related.
+The Four Noble Truths tell us that the end of suffering is possible, long-term happiness is possible. And we cultivate the desire for that long-term happiness: as we practice the path we let go of any desires that get in the way, that would lead to suffering, and in letting go of those desires we have to use the three perceptions to develop a sense of dispassion. So the three perceptions find their role within the context of the Four Noble Truths.
+And in the same way the perception of inconsistency finds its role within the context of our desire for long-term happiness. Because that desire is something that the Buddha takes for granted: he says we all start with suffering, we search for a way out, for somebody who can find and who knows a way out. And that search for way out becomes wise when we look for someone who's practiced, as the Buddha says, as a contemplative or a brahman -- by that he means a noble disciple, at the very least somebody who knows the Dharma -- and ask that person ‘what, when I do it, will lead to my long-term welfare and happiness?’
+This is the point where your search for an escape from suffering becomes wise, because you recognize that it's going to depend on your actions, and that there is such a thing as long-term happiness. That's the message we learned from the Four Noble Truths.
+
+And, of course, long term is better than short term. So in that context, for any happiness that's inconstant, you have to ask yourself does this measure up? Now there’s some inconstant pleasures that will measure up for the time being: the pleasures of generosity, the pleasures of virtue, the pleasures of meditation. Even though these may not be permanent -- they have their ups and downs – still, they're more long-term than your typical pleasures: because they're totally blameless.
+And as you look for happiness in these ways you get a sense of self-esteem; you realize that you're being responsible in your search for happiness, and you see that being good in these ways makes other people happy too. And that sense of connection -- your happiness and their happiness are not in conflict -- it warms the heart. It overcomes our sense of being totally alone in this world. And, as I said, it gives a rise to a sense of self-esteem.
+
+So, this is why when the Buddha identified the beginning of wisdom, it wasn't with the question ‘is form constant or inconstant?’ That comes later. It begins with, ‘what will lead to my long-term welfare and happiness?’
+And the inconstancy of form, and feelings, and perceptions, and fabrications, and consciousness; that's a teaching that you use within the context of that search for long-term happiness.
+As you get in the more advanced stages of the practice you look at the states of concentration that you can develop, and sometimes you don't realize those states of concentration -- the mind just gets really, really still, very expansive, very bright. And you might ask yourself: is this it? Is this what I've been practicing?
+Well, you pull out that question: is it constant or inconstant? You have to watch it, you realize if it's something that you have to put together, you have to maintain: it's not going to last forever. And there's the stress, even though it may be very small, there's still the stress in the maintaining.
+
+So, ask yourself: is this worth it? Should I claim this is my goal? Well, no.
+And that inspires you to move on, to look for something better. So that perception of inconstancy is a tool that you use within the larger context of your search for happiness, for testing whatever form of happiness you arrive at to see if it's the real deal.
+And in the meantime I'd encourage you to look for forms of happiness that are relatively long-term.
+
+And it's in the context of putting the search for true happiness or last lasting happiness first that the whole practice of merit makes sense. It's not simply that you happen to be strange and like to be generous and virtuous, whereas other people like to find their happiness in other ways.
+It's because you realize that the kind of happiness that comes from merit is better, say than the happiness that comes from simply trying to grab hold of pleasures in terms of sight, sound, smells, tastes, tactile sensations: it's wiser, less harmful. And more conducive to further progress on the path.
+So the Buddha’s teachings on the search for happiness are not ‘different strokes for different folks’, or just whatever happens to catch your fancy. You want to think through your search for happiness: think about the fact that happiness is going to be long-term if it doesn't cause harm to other people. That realization is the beginning of compassion, and it's going to depend on your actions: that realization is the beginning of purity.
+
+So, when you think carefully about happiness, you realize that the search for happiness includes compassion, purity. Here you've got all the qualities of the Buddha: his wisdom, his compassion, his purity -- these are the things we admire in him, And if we follow his example and search for happiness in a way that's well thought through, it's responsible, we'll develop those qualities within ourselves. And that augments our happiness. So, it's not just about switching partners whenever a certain pleasure falls away, it’s about building qualities within yourself that you can rely on in the long term.
+The Buddha was never the sort of teacher who would say that the search for happiness is bad, or that you shouldn't try to look for your own happiness. Quite the contrary, it's a search for happiness: but do it wisely. Think about the implications of what a wise search for happiness would be, and when you do that that's when you begin to be wise.

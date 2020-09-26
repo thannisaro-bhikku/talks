@@ -1,0 +1,4 @@
+10:52 So, step back, look at the processes of the mind. Because that’s where the real issues are: where the causes of suffering are, where the suffering is.
+But also the potential for putting an end to suffering comes from watching these things and seeing them in action, and becoming very discerning in how you shape your experience, how you react to your thoughts.
+
+So, reflect. Remember this practice is a mirror: it’s not for looking outside, it’s for looking at yourself. And trying to be very precise, to figure out which things going on in the mind are part of the path, and which things are off the path.

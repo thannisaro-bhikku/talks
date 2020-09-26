@@ -1,0 +1,25 @@
+1:12 There are stories in the Canon of the Buddha spreading goodwill to people, and it changed them. [Two stories from the Pali Canon are given].
+
+There's a story they tell in Thailand [about] Ajaan Fun. One night he learned that there had been a seizure of the Israeli embassy in Bangkok by some terrorists. This was right at the time there was going to be a large, very important ceremony in the palace. It was gonna mar the ceremony to have this event going on. So he spent the whole night sitting up, meditating, spreading thoughts of goodwill. The next morning he told one of his attendant monks, at six a.m., he said ok, the crisis is over. And then a few hours later, the word came by the radio that the terrorists had been willing to leave the embassy.
+So there are stories like this. You may say, ‘well, my concentration is not that strong,’ but still it's good to spread thoughts of goodwill when you can. The world has so much ill-will. The mental atmosphere, the emotional atmosphere of the world is very negative right now. So it’s good to spread some thoughts of goodwill to make it a little bit more positive, or as much more positive as you can manage.
+
+3:52 The thing about spreading thoughts of goodwill is that, when you spread those thoughts, it doesn't stop there. There's a responsibility that goes with them which needs to carry through.
+And although you may be spreading goodwill to beings far away, you start carrying through with people who are close to you. It’s an intention that you should follow through with. In other words, it places a certain responsibility on you.
+All too often you hear stories about people on meditation retreats, spreading thoughts of goodwill for weeks: may all beings be happy, may all beings be happy. They get into a car to leave, somebody cuts in front of them, well, may this being go to hell.
+Which shows that the goodwill didn't take.
+
+For it to take you have to think through what are the situations where you have ill will for people, and think through why that's not a wise response, or useful response. Why it's counterproductive.
+As the Buddha said, if you have ill will for anybody it's a sign you have a wrong view.
+it's interesting we think of ill-will as part of wrong resolve, but it's also wrong view: that somehow you would benefit from seeing other people suffer. So you go through the cases where you have ill will for people and try to reason with yourself, so that when you meet up with these people you find it easier to have the right attitude, so you're not going to say or do or think anything that's going to be harmful.
+
+5:54 So, basically, the dynamic is that you're the only one has to know that you're spreading thoughts of good will. Some people may pick it up, I know of cases were I've spread thoughts of goodwill to people and they ask the next day: did you spread thoughts of goodwill last night?
+There are cases where people pick it up, but whether they know or not, it's purely an individual affair. And, as I said, there's a responsibility that goes with it afterwards.
+Those are the two areas where spreading thoughts of goodwill and dedicating merit are different: because, with dedicating merit, the person to whom you're dedicating it has to know.
+This is one of the reasons why the Buddha talked about dedicating merit to people who have passed away, because there are beings on certain levels that can pick it up. The primary ones are hungry ghosts: this is their food, merit dedicated to them.
+But for them to be able to partake of that food, they have to approve. That's not always the case that they would know or, even if they did know, it's not always the case that they would approve.
+
+I knew this one man in Bangkok who lived in a condominium, in an area where there used to be a Catholic Church and a Catholic cemetery. The church had been abandoned, and so the church had been destroyed, the cemetery -- all the bones and everything -- had been dug up and moved away.
+And they built the condominium over it. Well, people in the condominium were having visions and dreams of old Catholics coming and harassing them.
+So one day he was meditating in his apartment and he saw this Catholic nun standing in the apartment. So he thought, I dedicate the merit of my meditation to you. And she said: I don't want your Buddhist merit, which means of course that she's still gonna hang around, she doesn't get any further than that.
+
+So the other person has to know, and approve, because that's how the merit gets transferred. You can't just give somebody merit, they have to see it as a good thing. And then once you've dedicated the merit then there's no further responsibility: you get more merit because you wanted to dedicate it, but whether the other person actually receives it, that's the other person's business. That's the other person's responsibility.
